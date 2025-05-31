@@ -7,4 +7,4 @@
 
 " 𝒎𝒂𝒚 𝒚𝒐𝒖𝒓 𝒍𝒐𝒗𝒆 𝒔𝒕𝒂𝒚 𝒕𝒓𝒖𝒆 𝒇𝒐𝒓 𝒂𝒍𝒍 𝒆𝒕𝒆𝒓𝒏𝒊𝒕𝒚 !! " 
 
-[♡](https://sparklybow.atabook.org/) [✿](https://open.spotify.com/user/31ocdm5ski3rvpdrdwkvserrx64y)  ![pavlova-cookie-pavlova](https://github.com/user-attachments/assets/a5ed423c-612c-4555-8655-02fc44e807ad)
+[♡ . ata](https://sparklybow.atabook.org/) [✿ . spotify](https://open.spotify.com/user/31ocdm5ski3rvpdrdwkvserrx64y) [✟ . straw](https://straw.page/make?id=heartstruckk) ![pavlova-cookie-pavlova](https://github.com/user-attachments/assets/a5ed423c-612c-4555-8655-02fc44e807ad)
